@@ -8,7 +8,7 @@
  <image src="https://github.com/user-attachments/assets/de301632-7e0f-4e73-9425-fdad0a73dd40">
 </p>
 
-> *"Period, the reversal of Finality."*
+> *"This is how you'll trust me."*
      
 <p align="center">
 ⋆｡°✩
@@ -29,7 +29,7 @@
 <p align="center">
  <img src="https://github.com/user-attachments/assets/f56c1a25-e1e5-498a-8b71-a9f8e476f2dd" />
 
- > "It shall confound you, then you shall return to me."
+ > *"It shall confound you, then you shall return to me."*
 
 ## ✩ **Character LIST, ect.**
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
@@ -50,7 +50,7 @@
  <image src="https://github.com/user-attachments/assets/647cd482-0729-449a-ace3-ec84e62311a6" />
 
 
-> “I remain faithful, that all dying Universes rely upon your arbitration for survival.”
+> *“I remain faithful, that all dying Universes rely upon your arbitration for survival.”*
 
 <p align="center">
 ⋆｡°✩
@@ -68,7 +68,7 @@
 <p align="center">
  <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
 
-> "They called me Pasha."
+> *"They called me Pasha."*
 
 <p align="center">
 ⋆｡°✩
@@ -96,7 +96,7 @@
 <p align="center">
  <image src="https://github.com/user-attachments/assets/ac732301-6166-4a6e-8d6b-96cba54c0dd1">
 
-> “The final Lord I served."
+> *“The final Lord I served."*
 
 <p align="center">
 ⋆｡°✩
