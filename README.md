@@ -1,4 +1,4 @@
-## ✩ "Come With Me, Endmin."
+## ✩ "𝓒𝓸𝓶𝓮 𝔀𝓲𝓽𝓱 𝓶𝓮, 𝓔𝓷𝓭𝓶𝓲𝓷."
 
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=❀.ೃ࿔&color=687CD2"> 
@@ -14,7 +14,7 @@
 ⋆｡°✩
 </p>
 
-## ✩ Quick Overview
+## ✩ 𝓠𝓾𝓲𝓬𝓴 𝓞𝓿𝓮𝓻𝓿𝓲𝓮𝔀
 * **No Major DNI**
 * **Minors IWC/IWEC as I'm 18+**
 * *W2I usually unless stated otherwise*
@@ -31,7 +31,7 @@
 
  > *"It shall confound you, then you shall return to me."*
 
-## ✩ **Character LIST, ect.**
+## ✩ **𝓒𝓱𝓪𝓻𝓪𝓬𝓽𝓮𝓻 𝓵𝓲𝓼𝓽, 𝓮𝓬𝓽.**
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
 * I also kin Zhongli, Dan Feng, and Liu Xiao
 * **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
@@ -56,7 +56,7 @@
 ⋆｡°✩
 </p>
 
-## ✩ Media Interests
+## ✩ 𝓜𝓮𝓭𝓲𝓪 𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼
 * **ARKNIGHTS and Endfield**
 * ORV
 * *Link Click*
@@ -74,7 +74,7 @@
 ⋆｡°✩
 </p>
 
-## ✩ Display Status on Pony Town
+## ✩ 𝓓𝓲𝓼𝓹𝓵𝓪𝔂 𝓼𝓽𝓪𝓽𝓾𝓼’𝓼 𝓸𝓷 𝓟𝓸𝓷𝔂 𝓣𝓸𝔀𝓷
 <p align="center">
   <img src="https://img.shields.io/badge/Online-〇-4b9953?style=flat-square&logo=psychology&logoColor=white" />
 </p>
@@ -85,7 +85,7 @@
   <img src="https://img.shields.io/badge/DNI/AFK-ㄨ-844454?style=flat-square" />
 </p>
 
-**Cosplays May Show What Mood I'm in** if you're unsure.
+**𝒞𝑜𝓈𝓅𝓁𝒶𝓎𝓈 𝑀𝒶𝓎 𝒮𝒽𝑜𝓌 𝒲𝒽𝒶𝓉 𝑀𝑜𝑜𝒹 𝐼'𝓂 𝒾𝓃** if you're unsure.
 * **Childe:** Actively online and in a joking mood. *I use this cosplay a lot when I’m poking fun.*
 * **Lu Guang:** Off-Tab mostly or lurking.
 * **Ardashir:** Neutral mood. Most likely on and off-tab. Occasional messages here and there.
