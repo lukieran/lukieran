@@ -47,7 +47,8 @@
 </p>
 
 <p align="center">
- <image src="https://github.com/user-attachments/assets/a4846a98-1a6a-44f3-a419-488866e39573" />
+ <image src="https://github.com/user-attachments/assets/647cd482-0729-449a-ace3-ec84e62311a6" />
+
 
 > “I remain faithful, that all dying Universes rely upon your arbitration for survival.”
 
