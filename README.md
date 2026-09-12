@@ -89,6 +89,7 @@
 * **Childe:** Actively online and in a joking mood. *I use this cosplay a lot when I’m poking fun.*
 * **Lu Guang:** Off-Tab mostly or lurking.
 * **Ardashir:** Neutral mood. Most likely on and off-tab. Occasional messages here and there.
+* **Liu Xiao:** Quiet/Semi-talkative, On and off-tab (Occasional Replies)
 * **Zhongli:** Off-tab
 * **Nico di Angelo:** AFK, NV, and or Off-Tab.
 * Any “Low Quiality” / Budget Cosplays. I’m off-tab (occasional replies may happen)
