@@ -27,6 +27,44 @@
 * **I Hide Freely** it's usually 15min to 24hrs.
 
 <p align="center">
+ <img src="https://github.com/user-attachments/assets/f56c1a25-e1e5-498a-8b71-a9f8e476f2dd" />
+
+ > "It shall confound you, then you shall return to me."
+
+## ✩ **Character LIST, ect.**
+* I heavily Kin Nico di Angelo, Dan Heng and Ardashir
+* I also kin Zhongli, Dan Feng, and Liu Xiao
+* **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
+* **Ships that I’m okay to interact with:**
+<p align=center>
+    
+    I do not force these ships onto anyone or expect anyone to INT with me on these. Don’t force your ships onto me as I don’t do it to anyone else.
+
+* ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), ShiGuang (Link Click), JaeXiao (Link Click), other ships, whisper if unsure (directed at friends and strangers).
+
+<p align="center">
+⋆｡°✩
+</p>
+
+<p align="center">
+ <image src="https://github.com/user-attachments/assets/a4846a98-1a6a-44f3-a419-488866e39573" />
+
+> “I remain faithful, that all dying Universes rely upon your arbitration for survival.”
+
+<p align="center">
+⋆｡°✩
+</p>
+
+## ✩ Media Interests
+* **ARKNIGHTS and Endfield**
+* ORV
+* *Link Click*
+* Granblue Fantasy
+* Genshin
+* HSR (Warning: Stopped after M. Blade Released)
+* MDZS and TGCF
+
+<p align="center">
  <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
 
 > "They called me Pasha."
