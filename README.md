@@ -16,6 +16,7 @@
     “Yes, Mother.” - Vein
     “That was delicious, now I got to piss.” - Vein
     “Seriously, why is he here?” - Li Tianchen
+    “I almost managed to catch them in one fell swoop.” - Vein
     
 </p>
 
