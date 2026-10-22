@@ -45,7 +45,7 @@
 
 ## ✩ **Character LIST, ect.**
 * I heavily Kin Nico di Angelo, Dan Heng, Ardashir, and Liu Xiao.
-  <p align=center>
+<p align=center>
     
     Liu Xiao has the same personality type as me and we almost share birthdays. His being December 10th, and mine being December 11th.
     
