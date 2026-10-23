@@ -1,12 +1,3 @@
-Lee Taehyun
-Lee Taeseong
-Moon Eunseong
-Seo Sangeun
-Yoon Jaeshin
-Song Junhyeok
-Park 
-Rhee 
-
 ## ✩ "Lord Drinker of the Moon."
 
 <p align="center" width="100%">
